@@ -1,4 +1,4 @@
-i hate u
+dcssi hate u
 iixvs
 
 :wq
